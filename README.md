@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Arielox98
+- 👀 I’m interested in Games
+- 🌱 I’m currently learning Java
+- 💞️ I’m looking to collaborate on PoP2
+- 📫 How to reach me xeba47@gmail.com
+- 😄 Pronouns: He
+- ⚡ Fun fact: i like trains
